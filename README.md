@@ -1,0 +1,1 @@
+# GenG-Model-for-Property-Investors
